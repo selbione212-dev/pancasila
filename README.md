@@ -1,0 +1,2 @@
+# pancasila
+mengenal lambang pancasila 
